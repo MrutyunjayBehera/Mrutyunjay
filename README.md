@@ -1,2 +1,2 @@
 # Mrutyunjay
-i am student of BCET
+i am student of BCET and srinix
